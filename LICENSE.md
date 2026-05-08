@@ -1,4 +1,4 @@
-
+custom natural disaster survival Script is the best natural disaster survival Script, featuring no cooldown and auto-farm. Safe and powerful for all
 
 
 
